@@ -14,4 +14,4 @@ ta muy largo, toledo corro
 sursum versus, uas
 
 # licenciatura
-uadeo
+uadeo, LSC
