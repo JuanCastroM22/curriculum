@@ -11,7 +11,7 @@ no me acuerdo tampoco, lopez mateo
 ta muy largo, toledo corro
 
 # prepa
-sursum versus
+sursum versus, uas
 
 # licenciatura
 uadeo
