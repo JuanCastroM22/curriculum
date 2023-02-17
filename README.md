@@ -5,7 +5,7 @@ Juan Carlos Castro Méndez
 No me acuerdo el nombre, aun no
 
 # primaria
-no me acuerdo tampoco
+no me acuerdo tampoco, lopez mateo
 
 # secundaria
 ta muy largo
