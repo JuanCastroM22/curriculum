@@ -2,7 +2,7 @@
 Juan Carlos Castro Méndez
 
 # kinder o preescolar
-No me acuerdo el nombre
+No me acuerdo el nombre, aun no
 
 # primaria
 no me acuerdo tampoco
