@@ -8,7 +8,7 @@ No me acuerdo el nombre, aun no
 no me acuerdo tampoco, lopez mateo
 
 # secundaria
-ta muy largo
+ta muy largo, toledo corro
 
 # prepa
 sursum versus
